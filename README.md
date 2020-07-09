@@ -4,6 +4,6 @@ Before you is a homosapien that has a knack for many things. _Believe you me_, I
 
 I adore wicked people. I'm specifically referring to folks that are wicked about their personal growth. :grin:
 
-I hold strong opinions about the fact that [@codebeast](https://twitter.com/codebeast) is a humanoid--**half-human,half-robot,half-spirit**.
+Bombastic rhetorics abound that [@codebeast](https://twitter.com/codebeast) is human. Lies! My rebuttal accentuates his humanoid status--**half-human, half-robot, half-spirit**.
 
 Finally, I'm currently obssessed with improving the quality of life of Nigerians through [Eden Life](https://ouredenlife.com). :four_leaf_clover: :seedling:
