@@ -6,4 +6,4 @@ I adore wicked people. I'm specifically referring to folks that are wicked about
 
 :sparkles: Bombastic rhetorics abound that [@codebeast](https://twitter.com/codebeast) is human. Lies! My rebuttal accentuates his humanoid status--**half-human, half-robot, and definitely half-spirit**. :alien:
 
-Finally, I'm currently obssessed with Open Source & improving the quality of life of Africans through [Eden Life](https://ouredenlife.com). :four_leaf_clover: :seedling:
+Finally, I'm currently obssessed with Open Source [@novu](https://github.com/novuhq/novu)  & improving the quality of life of Africans through [Eden Life](https://ouredenlife.com). :four_leaf_clover: :seedling:
